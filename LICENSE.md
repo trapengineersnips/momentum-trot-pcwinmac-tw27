@@ -1,4 +1,4 @@
-# 
+# Automático momentum trading bot herramientas para Mac OS | Profesional momentum trading bot herramientas para PC Windows. Con fuentes de precios en tiempo real y seguridad de clave privada — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
